@@ -3,7 +3,8 @@
 - 🌱 I’m currently learning languages
 - 💞️ I’m looking to collaborate on start up company
 - 📫 How to reach me :
-  Instagram --> https://www.instagram.com/tahaberkay_gul/
+  
+Instagram --> https://www.instagram.com/tahaberkay_gul/
  
  Linkedin --> https://www.linkedin.com/in/taha-berkay-gul-442b38268/
   
