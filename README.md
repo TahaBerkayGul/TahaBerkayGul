@@ -4,8 +4,10 @@
 - 💞️ I’m looking to collaborate on start up company
 - 📫 How to reach me :
   Instagram --> https://www.instagram.com/tahaberkay_gul/
-  Linkedin --> https://www.linkedin.com/in/taha-berkay-gul-442b38268/
-  Youtube --> https://www.youtube.com/channel/UCzhfYMtdCyAWLIo36IsdQ5Q
+ 
+ Linkedin --> https://www.linkedin.com/in/taha-berkay-gul-442b38268/
+  
+Youtube --> https://www.youtube.com/channel/UCzhfYMtdCyAWLIo36IsdQ5Q
 - 😄 Pronouns: ACtually I don't have any special pronouns :(
 - ⚡ Fun fact: A crocodile cannot stick its tongue out :)
 
